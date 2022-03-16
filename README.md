@@ -1,5 +1,5 @@
 - 👋 Hi, we are @ah-academicians
-- 👀 We help students achieve great grades and provide them learning opprtunities in an efficient and interesting way.
+- 👀 We help students achieve great grades and guide them in an efficient and interesting way.
 - 🌱 We deal in complete course, assignments and projects.
 - 💞️ I’m looking to collaborate on ...
 - 📫 you can reach out to us on email ahacademicians@gmail.com or whatsapp us at +923304579729
